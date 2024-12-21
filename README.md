@@ -59,4 +59,3 @@ Thank you for choosing *Pixel Gun 3D*! We hope you enjoy the added features and 
 ---
 
 ###### *Disclaimer: This software is intended for educational and research purposes only. Usage of cheats and enhancements in online multiplayer games may violate the terms of service of the game and result in penalties.*
-
